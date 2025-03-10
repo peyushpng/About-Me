@@ -14,6 +14,6 @@ Explore my portfolio and let's collaborate to create something amazing!
 
 ## 📲 Connect with Me
 
-🔗 *[Instagram](#https://www.instagram.com/peyush.png/)*  
+🔗 *[Instagram](https://www.instagram.com/peyush.png/)*  
 
 ---
